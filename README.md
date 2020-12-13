@@ -1,1 +1,1 @@
-https://gena888.github.io/Bike_Galary-fromPsd/#
+https://gena888.github.io/BikeGalary/
